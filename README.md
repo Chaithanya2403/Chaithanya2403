@@ -32,12 +32,12 @@ Check out some of my repositories:
 
 ## 📫 Get in Touch
 
-<!-- Add your LinkedIn or portfolio links here if you wish -->
+- linkedin.com/in/chaithanya-m-004478124
 
 ---
 
 ## ⚡ Fun Fact
-<!-- Share a fun fact or hobby here to add a personal touch! -->
+- When I'm not coding, I love listening to music to relax and recharge.
 
 ---
 
