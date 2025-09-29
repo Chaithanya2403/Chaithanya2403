@@ -32,7 +32,7 @@ Check out some of my repositories:
 
 ## 📫 Get in Touch
 
-- [linkedin.com/in/chaithanya-m-004478124]
+- [linkedin.com/in/chaithanya-m-004478124](linkedin.com/in/chaithanya-m-004478124)
 
 ---
 
